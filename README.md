@@ -14,7 +14,7 @@ This space is where I explore **AI-driven systems, infrastructure, and next-gen 
 - Exploring partnerships in advanced inference infrastructure  
 
 🔹 Connect  
-- 🚀 [More coming soon…]  
+- 🚀 www.jetlenz.com
 
 ---
 
